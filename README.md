@@ -12,8 +12,6 @@
 
 ![](https://i.postimg.cc/VNSbSgj6/7.png)
 
-![](https://i.postimg.cc/wTKby7G1/2.png)
-
 ![](https://i.postimg.cc/fywLbwmk/10.png)
 
 ![](https://i.postimg.cc/NjLKTfVH/3.png)
@@ -26,3 +24,4 @@
 
 ![](https://i.postimg.cc/L4T5b1FP/9.png)
 
+![](https://i.postimg.cc/KzmfmMqT/1.png)
