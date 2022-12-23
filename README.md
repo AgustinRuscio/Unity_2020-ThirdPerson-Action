@@ -26,4 +26,3 @@
 
 ![](https://i.postimg.cc/L4T5b1FP/9.png)
 
-![](https://i.postimg.cc/RhX06jLd/8.png)
